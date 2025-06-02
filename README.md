@@ -1,4 +1,4 @@
-# Privacy Policy for Volcano Mini Games
+# Privacy Policy for Volcano Fiesta - Mini-Games
 
 **Last updated:** June 2025
 
