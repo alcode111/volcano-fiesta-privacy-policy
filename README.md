@@ -30,7 +30,7 @@ We may update this privacy policy from time to time. Any changes will be posted 
 
 ## Contact Us
 
-If you have any questions about this privacy policy, please contact us at [alcode111@gmail.com].
+If you have any questions about this privacy policy, please contact us at alcode111@gmail.com.
 
 ---
 
